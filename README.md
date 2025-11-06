@@ -1,4 +1,4 @@
-# **My favourite series and movies**
+# My favourite series and movies
 1. Avengers: End Game
 2. Spider-Man
 3. Beloved Summer
